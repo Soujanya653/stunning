@@ -31,8 +31,8 @@
 
 ## 🌐 Connect With Me  
 - 💼 [LinkedIn]([https://www.linkedin.com/](https://www.linkedin.com/in/soujanya-menasagi-49684526a/))  
-- 📧 Email: soujanyamenasagi@email.com  
+- 📧 Email: soujanyamenasagi@gmail.com  
 
 ---
 
-⭐️ From [Soujanya](https://github.com/YOUR-USERNAME)
+⭐️ From [Soujanya](https://github.com/Soujanya653)
