@@ -1,4 +1,4 @@
-# stunning
+# About Me
 
 # 👋 Hi, I'm Soujanya!  
 
